@@ -1,6 +1,6 @@
 # Política de Privacidad, Navutan
 * Efectiva desde: 20 de Febrero de 2022.
-* Última revisión: 20 de Febrero de 2022.
+* Última revisión: 3 de Marzo de 2022.
 
 
 ## Introducción
